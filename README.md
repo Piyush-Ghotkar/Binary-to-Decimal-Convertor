@@ -22,7 +22,8 @@ The base-2 numeral system is a positional notation with a radix of 2. Each digit
  <a href="https://ibb.co/XxkRcgd"><img src="https://i.ibb.co/XxkRcgd/IMG-8236.jpg" alt="IMG-8236" border="0"></a>
   &nbsp
   <a href="https://ibb.co/dPkrp8w"><img src="https://i.ibb.co/dPkrp8w/IMG-8233.jpg" alt="IMG-8233" border="0"></a>
-  
+  &nbsp
+  <a href="https://ibb.co/hmwSM3z"><img src="https://i.ibb.co/jrsS5nX/IMG-20200204-234616.jpg" alt="IMG-20200204-234616" border="0"></a>
   
 <p>
  <br><br>
